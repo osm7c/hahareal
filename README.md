@@ -1,2 +1,1 @@
-# hahareal
-rewal
+![](https://media.discordapp.net/attachments/1057393153881165847/1170043916347789432/ddgv0vg-bb1e252d-a4c5-4376-8165-8f17cd07b53a.gif?ex=65579b50&is=65452650&hm=ff925bed24e50f1d0904f450e67db6935f4ace409aa574ef35e9e9d817adb0c5&)
