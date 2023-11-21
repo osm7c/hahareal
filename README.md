@@ -1,1 +1,2 @@
-![](https://media.discordapp.net/attachments/1057393153881165847/1170043916347789432/ddgv0vg-bb1e252d-a4c5-4376-8165-8f17cd07b53a.gif?ex=65579b50&is=65452650&hm=ff925bed24e50f1d0904f450e67db6935f4ace409aa574ef35e9e9d817adb0c5&)
+me fr but i legit have an A but okay then bc i cant draw PFTTT
+![](https://media.discordapp.net/attachments/1057393153881165847/1170046870077321327/tumblr_inline_phwh7b9JTr1w0aona_500.png?ex=65579e10&is=65452910&hm=56a78c88c23e29861b0ec9120792670c65fbdf040d0d36f726ad454a3477947b&)
